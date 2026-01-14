@@ -50,7 +50,7 @@ Expected Graduation: May 2026
 - Sprout Social (scheduling, analytics, reporting)
 
 
-\\
+
 
 ---
 
@@ -59,7 +59,7 @@ Expected Graduation: May 2026
 **Delta Gamma – Alpha Psi Chapter**  
 Director of Recruitment Public Relations
 
-\\
+
 
 ---
 
