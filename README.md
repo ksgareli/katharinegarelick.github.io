@@ -47,10 +47,37 @@ Expected Graduation: May 2026
 - Copywriting and Campaign Planning  
 - Event Marketing and Influencer Relations  
 - Strong Communication and Leadership  
-- Sprout Social (scheduling, analytics, reporting)  
+- Sprout Social (scheduling, analytics, reporting)
+
+
+\\
 
 ---
+
 
 ## Leadership & Involvement
 **Delta Gamma – Alpha Psi Chapter**  
 Director of Recruitment Public Relations
+
+\\
+
+---
+
+## Portfolio Work
+
+### Social Media Campaigns
+- Developed live social media coverage for Ole Miss Athletics events across Instagram, TikTok, and Twitter.
+- Scheduled and executed content for Ole Miss Student Hub and Main Account, highlighting campus life and resources.
+
+### Digital Marketing & Influencer Activations
+- Coordinated influencer relations for NIL athlete campaigns, including strategy, content planning, and campaign reporting.
+- Assisted with digital campaigns for Snoop Dogg Gin & Juice Arizona Bowl and Barstool Sports Arizona Bowl.
+
+### Graphic Design & Content Creation
+- Designed promotional graphics for Southern Hospitality Group.
+- Created in-game digital content for athletic events, including social media graphics, live updates, and video highlights.
+
+### Event Marketing
+- Supported marketing and operational logistics for major bowl games, increasing fan engagement and sponsor visibility.
+
+
